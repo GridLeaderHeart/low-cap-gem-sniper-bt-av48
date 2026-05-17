@@ -1,4 +1,4 @@
-# 
+# custom bot de ataque sanduiche addons é o melhor bot de ataque sanduiche addons com controle de slippage e modo simulação. Seguro, confiável e otimizado para estratégias MEV,
 
 
 
